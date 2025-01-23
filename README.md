@@ -1,8 +1,8 @@
 FULL ORIGINAL VIDEO: El hombre, Kevin Boca, quien murió de un paro cardíaco en el Nevado del Tolima, fue visto teniendo sexo en trío con su novia, Jois Ramirez, y su suegra
 
-<a href="https://yivite.cfd/hiana"> 🌐  (VIDEO: El hombre, Kevin Boca, quien murió de un paro cardíaco en el Nevado del Tolima, fue visto teniendo sexo en trío con su novia, Jois Ramirez, y su suegra) 
+<a href="https://pyblox.cfd/hombra"> 🌐  (VIDEO: El hombre, Kevin Boca, quien murió de un paro cardíaco en el Nevado del Tolima, fue visto teniendo sexo en trío con su novia, Jois Ramirez, y su suegra) 
 
-🔴 ➤►DOWNLOAD👉👉🟢 ➤<a href="https://yivite.cfd/hiana"> 🌐  (VIDEO: El hombre, Kevin Boca, quien murió de un paro cardíaco en el Nevado del Tolima, fue visto teniendo sexo en trío con su novia, Jois Ramirez, y su suegra)
+🔴 ➤►DOWNLOAD👉👉🟢 ➤<a href="https://pyblox.cfd/hombra"> 🌐  (VIDEO: El hombre, Kevin Boca, quien murió de un paro cardíaco en el Nevado del Tolima, fue visto teniendo sexo en trío con su novia, Jois Ramirez, y su suegra)
 
 El fallecimiento del joven sigue en boca de la opinión pública que exige respuestas - crédito joisramirez08 / Instagram
 Lo que inició con un reto y un sueño para el joven deportista Kevin Bocanegra Marín, así como para su pareja, Jois Ramírez, y su suegra, Julieth Ordóñez, se convirtió en una tragedia luego que en el anhelado ascenso al nevado del Tolima, el joven sufriera un edema pulmonar que produjo su muerte, en medio de, según su novia, omisiones, negligencia y falta de humanidad por parte del guía, montañistas y habitantes de la zona.
